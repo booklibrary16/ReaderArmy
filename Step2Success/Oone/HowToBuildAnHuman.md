@@ -11,3 +11,4 @@
 10,I should make a plan for my life ,that can earn money for me ,at the same time,i can enjoy life at the same time ,i should make the feel come true ,that the world will need me ,that's what i do in the future and everyday that ,it's my duty to do all the things,     
 11,I should try everything in the future,I should create a machine in the future,that can give me the money and i can control it,at the same time ,i should know everything about how to earn money.    
 12,I should create myself as AN IP.   
+13,I should know ,for the future life,what dose other people do,and i will do too.三国演义li,caocao do what, liubei do what,and now in the nowdays,people do what.I am a company,我必须让自己步入正轨之上，自己已经通过种种律法，札记，备忘录等等制定了一条轨道，everything should follow this way,to the future.
